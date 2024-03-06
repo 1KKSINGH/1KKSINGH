@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @1KKSINGH
-- 👀 I’m interested in ... girlfriend 
+- 👀 I’m interested in ... loyal girlfriend 
 - 🌱 I’m currently learning ... Java 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
